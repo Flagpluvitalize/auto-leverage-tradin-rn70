@@ -1,4 +1,4 @@
-# 
+# Get the ultimate scalping bot for derivatives with vip Automation Script for scalping bot for derivatives | order-book-analysis + market-making. Featuring order-book-analysis and
 
 
 
